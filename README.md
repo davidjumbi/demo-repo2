@@ -1,4 +1,4 @@
 #Demo 2
 
-Lord I'm kindly asking for a better job
+Lord please I'm praying for a better job
 
